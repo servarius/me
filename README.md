@@ -12,6 +12,7 @@ vservarius@gmail.com
 ## Previous speeches 
 
 2022 - https://www.youtube.com/watch?v=e5EgoOouguQ
+
 2019 - https://www.youtube.com/watch?v=TxZnxcTo0R8
 
 

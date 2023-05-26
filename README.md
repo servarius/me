@@ -11,9 +11,9 @@ vservarius@gmail.com
 
 ## Previous speeches 
 
-2022 - https://www.youtube.com/watch?v=e5EgoOouguQ
+2022 - https://www.youtube.com/watch?v=e5EgoOouguQ JUG.RU. SmartData
 
-2019 - https://www.youtube.com/watch?v=TxZnxcTo0R8
+2019 - https://www.youtube.com/watch?v=TxZnxcTo0R8 Ontico. DevOpsConf
 
 
 ## Articles
